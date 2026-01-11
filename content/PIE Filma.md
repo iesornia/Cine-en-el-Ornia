@@ -1,0 +1,4 @@
+El presente curso 2025-2026 se le ha concedido al IES Ornia el Proyecto de Innovación Educativa Filma, por el cual se busca mejorar y fortalecer la competencia TIC tanto de [[Un grupo de docentes|docentes]] como de alumnado a través de la creación de contenidos audiovisuales. Hemos recibido herramientas tales como cámara y micrófonos, hemos recibido formación para editar videos y estamos llenos de ilusión por desarrollar todo tipo de actividades con nuestro alumnado.
+
+Mucho nos queda por delante, pero hay un proyecto especial que queremos compartir: la creación de un cortometraje. No un [[El cortometraje|cortometraje]] cualquiera, sino uno inspirado en el [[Ciclo de cine|ciclo de cine]] trabajado durante este curso, un cortometraje que, igual que las películas del ciclo, versione un mito u obra clásico.
+![[Logotipos.png]]
