@@ -1,2 +1,3 @@
 Este proyecto inspirador, comienza con una formación docente ofrecida por el CFIE de León, el [[Seminario Ver cine en el aula]] en el que los miembros colaboramos e investigamos para desarrollar un método formativo adecuado para nuestros objetivos.
+
 Además, el presente curso 2025/2026 se le ha concedido el [[PIE Filma]] al IES Ornia, un Proyecto de Innovación Educativa para mejorar la competencia del profesorado en la elaboración de materiales audiovisuales, así como para que el alumnado se embarque en la tarea de creación de productos audiovisuales variados.
