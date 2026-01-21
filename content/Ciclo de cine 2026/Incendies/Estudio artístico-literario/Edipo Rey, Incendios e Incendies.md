@@ -1,0 +1,25 @@
+Por Nerea Pérez Monje
+
+Para su película, Denis Villeneuve se inspira en *Incendios*, de Wajdi Mouawad, una obra intermedia entre *[[Incendies]]* y Edipo que narra la vida de Nawal a través de la memoria. 
+
+El argumento es similar al de la película, sin embargo, el cambio de formato (de teatro a cine), hace que se pierdan muchas figuras literarias que dan valor a esta obra, como repetir constantemente la palabra *olvido*, que hace visible la intención del autor, y los diálogos en el teatro son mucho más concisos e intensos, pero esto se ve sustituido por elementos visuales. En el teatro, cuando Jeanne obtiene información sobre la vida de su madre, esta entra en escena, interpretando literalmente los recuerdos desenterrados. En la película, para representar que Jeanne recorre el mismo camino que su madre, se repiten los planos.  
+
+Este cambio de transmisión también afecta al ritmo de la historia, por ejemplo, en la obra, muere cinco años después de ver a su hijo perdido, en la película muere inmediatamente después de saber la verdad, aunque le da tiempo a dejar su testamento. Eso le da mayor intensidad a la película, agrava la situación. 
+
+Un elemento destacable de la película con el que la obra teatral no cuenta es la metáfora de la piscina: cómo sumergirse permite protegerse, pero también implica aislarse, mantenerse ignorante; y el salir de la piscina como acto de conciencia para poder respirar, una forma de alivio.  
+
+El tema central de las tres obras es el incesto, cuya función es castigar ya sea por no cumplir con la ley divina (en el caso de Edipo) o por los crímenes cometidos: Nawal por matar, para Abou Tarek por torturar, para los gemelos por soberbia. Le da lógica a la historia y gracias a él se desarrollan el resto de acciones, sucesos, temas. 
+
+El destino tiene mucha importancia y también se trata de la misma manera en todas las obras: comienzan cuando la tragedia ya ha ocurrido, haciendo del destino algo totalmente irremediable. En Incendios, los personajes no solo hacen un viaje de lugar, sino temporal, la analepsis es fundamental, marcada por los paralelismos entre planos antes mencionados. Este viaje introduce el tópico *homo viator* y es clave para la evolución de los gemelos, los va cambiando y purificándolos, transformándolos en otras personas más sabias y maduras conforme atraviesan diversas experiencias y desengaños.
+
+La película además comienza y termina con Abou Tarek, marcando su papel. Es el responsable directo del incesto, el tema central, y dándole a la película una estructura redonda, perfecta, que comienza y termina en la misma persona física, pero no mentalmente, las acciones, los acontecimientos y las consecuencias le transforman.
+
+Otros temas que se mantienen en las tres obras son: la *hybris*, que es la soberbia (de Edipo y de Simon); la catarsis (María), que es la purificación después de tener una experiencia vital profunda, cuando los gemelos y Edipo conocen la verdad; y el hilo de la ira (Sara). 
+
+En cuanto a símbolos (Adara, Marta), destaca la marca en el cuerpo como método de reconocimiento. Edipo y Abou Tarek son reconocidos por la marca que tienen en los pies o en el pie respectivamente. En la obra de Wajdi Mouawad, la nariz de payaso acompaña a Abou Tarek durante toda su vida y además de ser un símbolo de reconocimiento para su madre, hace una antítesis entre la felicidad de los payasos y la dureza de la vida de los protagonistas. 
+
+Las principales diferencias entre Edipo e *Incendios* están en el argumento y la función de los personajes: en Edipo, él mismo es el que ha cometido el incesto, ha asesinado a su madre y el que tiene el deber de averiguarlo; en *Incendios*, la acción está más repartida entre los personajes: la familia de Nawal es la que asesina a su novio y los descendientes del incesto son los que deben averiguar la verdad y el resto de la acción delega en Abou Tarek, de forma que es más difícil definir quién es el protagonista y la culpa está repartida. Esto también se debe a que el teatro clásico contaba con pocos actores, de hecho, Sófocles es pionero introduciendo el tercer actor, y los espacios dramáticos donde se desarrollaban los actos solían ser palacios. Wajdi Mouawad cuenta con más diversidad de espacios y personajes y lo aprovecha. 
+
+Otra diferencia importante es el cambio de contexto, que da lugar a otro tema que en Edipo no habíamos visto: la guerra, en este caso la del Líbano y sus consecuencias más directas. (Sara)  
+
+Las obras no pierden valor porque los autores se inspiren en el anterior, al contrario, tratan los mismos temas de una manera constructiva, aportando algo, matizándolos o simplemente revitalizando temas tan propios de la literatura como de la naturaleza humana. De esta manera, ellos mismos forman parte de ese hilo de cólera que representa los problemas humanos, constantes a pesar de la cultura. Tener contacto con las tres obras y reflexionar sobre ellas, hace que seamos conscientes de los verdaderos problemas sociales y dejemos de lado las limitaciones que nuestra cultura nos imponga.
