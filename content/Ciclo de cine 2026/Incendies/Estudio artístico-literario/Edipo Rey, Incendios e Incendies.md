@@ -1,4 +1,4 @@
-Por Nerea Pérez Monje
+***Por Nerea Pérez Monje***
 
 Para su película, Denis Villeneuve se inspira en *Incendios*, de Wajdi Mouawad, una obra intermedia entre *[[Incendies]]* y Edipo que narra la vida de Nawal a través de la memoria. 
 

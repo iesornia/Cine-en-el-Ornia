@@ -1,4 +1,4 @@
-Por Zornitsa Dimitrova Tsolova
+***Por Zornitsa Dimitrova Tsolova***
 
 La película [[Incendies]] dirigida por Denis Villeneuve y basada en la obra de Wajdi Mouawad, es un viaje emocional que trata las consecuencias de la guerra y los secretos de familia. Para quien no la conoce, la trama gira en torno a dos gemelos, Jeanne y Simon, quienes tras la muerte de su madre Nawal, reciben un testamento, deben encontrar a un padre que creían muerto y a un hermano cuya existencia desconocían. 
 

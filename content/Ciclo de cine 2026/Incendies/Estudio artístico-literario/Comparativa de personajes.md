@@ -1,6 +1,6 @@
 ## Entre Edipo Rey e [[Incendies]]
 
-Por Lucía Díez Fernández
+***Por Lucía Díez Fernández***
 
 1. Edipo: Abou Tarek 
 2. Yocasta: Nawal 
@@ -9,7 +9,7 @@ Por Lucía Díez Fernández
 5. Tiresias: Notario 
 6. Esfinge: Guerra 
 
-1- A Abou Tarek, al nacer, le dibujan tres puntos en el tobillo de un pie para que más tarde, su madre Nawal, pueda encontrarle. Edipo, el personaje de la tragedia, es hijo de Yocasta y Layo, el rey de Tebas. Su nombre en griego significa *pies hinchados*, debido a que sus tobillos quedaron hinchados por las heridas que le hicieron cuando lo abandonaron sus padres. Ambos personajes son marcados al nacer en el pie, signo que les identificará más adelante. Continuando con la tragedia, y hablando anteriormente del abandono por parte de los reyes de Tebas, su causa fue que, al nacer, lo llevaron al oráculo para predecir su destino. La respuesta de éste fue que de mayor mataría a su padre y se casaría con su madre. Layo, horrorizado por la noticia tomó la decisión de abandonarlo para procurar q ese destino no se cumpliera.  
+1- A Abou Tarek, al nacer, le dibujan tres puntos en el tobillo de un pie para que más tarde, su madre Nawal, pueda encontrarle. Edipo, el personaje de la tragedia, es hijo de Yocasta y Layo, el rey de Tebas. Su nombre en griego significa *pies hinchados*, debido a que sus tobillos quedaron hinchados por las heridas que le hicieron cuando lo abandonaron sus padres. Ambos personajes son marcados al nacer en el pie, signo que les identificará más adelante. Continuando con la tragedia, y hablando anteriormente del abandono por parte de los reyes de Tebas, su causa fue que, al nacer, lo llevaron al oráculo para predecir su destino. La respuesta de éste fue que de mayor mataría a su padre y se casaría con su madre. Layo, horrorizado por la noticia tomó la decisión de abandonarlo para procurar que ese destino no se cumpliera.  
 
 Abou Tarek es también abandonado aunque Nawal no quiere. En la tragedia, Edipo sin saberlo mantiene relaciones sexuales con su madre. Abou Tarek viola a la suya, también es con una gran inconsciencia y falta de información, porque viendo el final de la película, se nos muestra que tiene al menos un tipo de resentimiento claro sobre sus acciones, mostrando así una reacción de que probablemente, si hubiera sabido que Nawal era su madre, no lo habría hecho. Al igual que Edipo, que se daña la vista con los broches de Yocasta, para no ver todo el mal que ha provocado. 
 

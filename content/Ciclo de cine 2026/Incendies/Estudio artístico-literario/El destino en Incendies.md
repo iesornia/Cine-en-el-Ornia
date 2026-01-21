@@ -1,6 +1,6 @@
 ## Y en Edipo Rey
 
-Por Andrea Amorín Carnicero
+***Por Andrea Amorín Carnicero***
 
 El destino es un tema muy importante tanto en *Edipo Rey* como en *[[Incendies]]*, pero en cada obra se ve de una forma distinta. 
 
