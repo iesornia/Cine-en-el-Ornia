@@ -14,7 +14,7 @@ El destino tiene mucha importancia y también se trata de la misma manera en tod
 
 La película además comienza y termina con Abou Tarek, marcando su papel. Es el responsable directo del incesto, el tema central, y dándole a la película una estructura redonda, perfecta, que comienza y termina en la misma persona física, pero no mentalmente, las acciones, los acontecimientos y las consecuencias le transforman.
 
-Otros temas que se mantienen en las tres obras son: la *hybris*, que es la soberbia (de Edipo y de Simon); la catarsis (María), que es la purificación después de tener una experiencia vital profunda, cuando los gemelos y Edipo conocen la verdad; y el hilo de la ira (Sara). 
+Otros temas que se mantienen en las tres obras son: la *hybris*, que es la soberbia (de Edipo y de Simon); la [[Incendies. Verdad y dolor#LA CATARSIS|catarsis]], que es la purificación después de tener una experiencia vital profunda, cuando los gemelos y Edipo conocen la verdad; y el hilo de la ira (Sara). 
 
 En cuanto a símbolos (Adara, Marta), destaca la marca en el cuerpo como método de reconocimiento. Edipo y Abou Tarek son reconocidos por la marca que tienen en los pies o en el pie respectivamente. En la obra de Wajdi Mouawad, la nariz de payaso acompaña a Abou Tarek durante toda su vida y además de ser un símbolo de reconocimiento para su madre, hace una antítesis entre la felicidad de los payasos y la dureza de la vida de los protagonistas. 
 

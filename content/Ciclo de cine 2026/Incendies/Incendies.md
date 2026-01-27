@@ -11,5 +11,5 @@ Volver al [[Ciclo de cine|ciclo de cine]]
 - **Sinopsis:** Nawal Marwan ha fallecido y sus hijos, Jeanne y Simon, esperan las últimas voluntades. Reciben dos cartas con instrucciones de encontrar a su hermano y a su padre desconocidos, lo que les llevará a emprender un viaje en busca de la verdad, una verdad enterrada por el silencio.
 
 **Trabajos realizados:**
-- Estudios artístico-literarios de Incendies
-- La búsqueda de la verdad en Incendies
+- [[Índice de trabajos sobre Incendies#Estudios artístico-literarios|Estudio artístico-literario]]
+- [[Índice de trabajos sobre Incendies#La búsqueda de la verdad|La búsqueda de la verdad]]
