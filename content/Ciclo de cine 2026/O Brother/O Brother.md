@@ -7,3 +7,6 @@ Volver al [[Ciclo de cine|ciclo de cine]]
 - **Reparto principal:** George Clooney, John Turturro, Tim Blake Nelson, Holly Hunter
 - **Género:** Comedia-Aventuras
 - **Sinopsis:**
+
+Trabajos realizados:
+[[Podcast sobre O Brother]]
