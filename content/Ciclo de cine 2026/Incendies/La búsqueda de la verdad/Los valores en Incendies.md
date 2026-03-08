@@ -2,7 +2,7 @@
 
 ## Valor de la verdad
 
-En Incendies, la verdad es algo difícil de aceptar y que duele mucho, pero a la vez es totalmente necesaria. La verdad que duele es descubrir aspectos del pasado que cambian por completo la manera en que uno se ve a sí mismo y a su historia. La película no muestra la verdad como algo que haga feliz automáticamente, sino como algo que cambia la manera en que uno ve la vida y
+En *[[Incendies]]*, la verdad es algo difícil de aceptar y que duele mucho, pero a la vez es totalmente necesaria. La verdad que duele es descubrir aspectos del pasado que cambian por completo la manera en que uno se ve a sí mismo y a su historia. La película no muestra la verdad como algo que haga feliz automáticamente, sino como algo que cambia la manera en que uno ve la vida y
 a sí mismo. A veces puede parecer más fácil vivir sin saberla, pero en realidad es vivir incompleto, porque siempre hay partes que no encajan y que generan confusión.
 
 Nawal decide callar durante años porque su pasado fue muy violento y traumático. Ella sabe que contar toda la verdad podría romper la imagen que sus hijos tienen de ella y de su familia. Pero al mismo tiempo, entiende que esconder la verdad no hace que desaparezca. Por eso deja el testamento, para que sus hijos tengan que enfrentarla cuando ella ya no esté y puedan empezar a unir las piezas de su historia.

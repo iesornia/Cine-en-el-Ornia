@@ -2,7 +2,7 @@
 
 ## Contexto histórico:  
 
-El inicio de esta película y toda la historia de Nawal se ambienta entre los años 1975 y 1990, en los que se produjo una guerra civil en el Líbano. Esta guerra enfrentaba a cristianos y musulmanes, ejerciendo fuerza por parte de ambos bandos intentando decidir cual sería la religión que predominaría en el país. Aunque al final de esta guerra se consiguió llegar a un acuerdo entre los dos bandos y permanecieron ambas religiones, la gente que la vivió sufrió mucho por la amenaza de ambos lados.  
+El inicio de esta [[Incendies|película]] y toda la historia de Nawal se ambienta entre los años 1975 y 1990, en los que se produjo una guerra civil en el Líbano. Esta guerra enfrentaba a cristianos y musulmanes, ejerciendo fuerza por parte de ambos bandos intentando decidir cual sería la religión que predominaría en el país. Aunque al final de esta guerra se consiguió llegar a un acuerdo entre los dos bandos y permanecieron ambas religiones, la gente que la vivió sufrió mucho por la amenaza de ambos lados.  
 
 Podemos ver un ejemplo de esto en la propia película, cuando Nawal intenta salvar a una niña afirmando que es cristiana y enseñando una cruz. Los hombres que estaban allí mataron a la madre de la niña y a la bebé tan solo por ser musulmanas. 
 

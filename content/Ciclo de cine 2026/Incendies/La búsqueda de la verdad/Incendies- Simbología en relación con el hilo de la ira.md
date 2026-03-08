@@ -1,6 +1,6 @@
 ***Por Adara Martínez Santos***
 
-## ¿Qué relación hay entre el hilo de la ira y la simbología en la película?
+## ¿Qué relación hay entre el hilo de la ira y la simbología en la [[Incendies|película]]?
 
 El hilo de la ira está presente en toda la película, pues durante el transcurso de la misma es el que Nawal trata de “romper”, además de servir como herramienta para la narración porque se usa como hilo conductor para encontrar la verdad aunque duela y acabar con la ira, este está lleno de símbolos , cada uno de ellos se encuentra en una parte de él y aportan sentido a la película de manera que también se usan como herramienta para expresar ideas y emociones de manera no explícita, aportan sentido a ambas cosas.
 
