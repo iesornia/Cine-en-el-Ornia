@@ -6,7 +6,8 @@ Volver al [[Ciclo de cine|ciclo de cine]]
 - **Guion:** Joel Coen, Ethan Coen
 - **Reparto principal:** George Clooney, John Turturro, Tim Blake Nelson, Holly Hunter
 - **Género:** Comedia-Aventuras
-- **Sinopsis:**
+- **Sinopsis:** Everett Ulyssess McGill, huye de prisión junto con sus dos compañeros de cadenas, a los que ha prometido desenterrar un gran tesoro. Esto les llevará a un viaje lleno de encuentros al más puro estilo de la Odisea. Una comedia de los Coen, con un gran poso mitológico detrás.
 
-Trabajos realizados:
+**Trabajos realizados:**
+
 [[Podcast sobre O Brother]]
