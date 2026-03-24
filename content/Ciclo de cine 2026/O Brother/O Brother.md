@@ -11,3 +11,5 @@ Volver al [[Ciclo de cine|ciclo de cine]]
 **Trabajos realizados:**
 
 [[Podcast sobre O Brother]]
+[Padlet sobre la música en O Brother (dpto. Música)](https://padlet.com/elenagm253/o-brother-jixxfv4dh5csvzk6/slideshow)
+[[Jeopardy sobre la cultura estadounidense a través de O Brother (dpto. Inglés)|Jeopardy de la cultura estadounidense (dpto. Inglés)]]
