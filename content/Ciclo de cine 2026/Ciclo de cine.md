@@ -12,7 +12,7 @@ Estas son las películas que trabajaremos con nuestro alumnado y presentaremos e
 
 - *[[Incendies]]*, de Denis Villeneuve (2010)
 
-[![Incendies|100](https://pics.filmaffinity.com/incendies-245390654-large.jpg)](Incendies)
+[![Incendies|150](https://pics.filmaffinity.com/incendies-245390654-large.jpg)](https://pics.filmaffinity.com/incendies-245390654-large.jpg)
 
 - *[[O Brother]]*, de los hermanos Coen (2000)
 
