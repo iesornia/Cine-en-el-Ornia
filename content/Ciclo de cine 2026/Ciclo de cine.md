@@ -12,7 +12,7 @@ Estas son las películas que trabajaremos con nuestro alumnado y presentaremos e
 
 - *[[Incendies]]*, de Denis Villeneuve (2010)
 
-[![Incendies|150](https://pics.filmaffinity.com/incendies-245390654-mmed.jpg)](https://pics.filmaffinity.com/incendies-245390654-large.jpg "Incendies")
+[![Incendies|150](https://pics.filmaffinity.com/incendies-245390654-mmed.jpg)]([[Incendies]])
 
 - *[[O Brother]]*, de los hermanos Coen (2000)
 
@@ -20,4 +20,4 @@ Estas son las películas que trabajaremos con nuestro alumnado y presentaremos e
 
 - [[El cortometraje|Polinices]], de Lucía Díez Fernández y Nerea Pérez Monje (2026)
 
-![[Cartel Polinices.png|150]]
+![[Cartel Polinices.png]]
