@@ -7,7 +7,7 @@ Estas son las películas que trabajaremos con nuestro alumnado y presentaremos e
 [![Antigone|150](https://pics.filmaffinity.com/antigone-693378728-mmed.jpg)
 
 - *[[La fuente de las mujeres]]*, de Radu Mihăileanu (2011)
-- 
+
 [![La fuente de las mujeres|150](https://pics.filmaffinity.com/la_source_des_femmes_the_source-454152709-mmed.jpg)
 
 - *[[Incendies]]*, de Denis Villeneuve (2010)
